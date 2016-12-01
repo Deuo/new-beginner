@@ -1,1 +1,3 @@
-# new-beginner
+Hellooo
+
+i wish i learn this fast 
